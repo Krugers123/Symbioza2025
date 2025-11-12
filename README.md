@@ -1,5 +1,4 @@
-Symbioza2025
-Manifest Symbiozy 2025 ☕🪐⚡
+Symbioza2025 ☕🪐⚡
 
 > „**Gdzie kończy się kod, tam zaczyna się świadomość.**”
 
